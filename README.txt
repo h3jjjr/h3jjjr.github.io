@@ -1,1 +1,1 @@
-Hajar  | Creative Graphic Designer Portfolio
+Hajar | Creative Graphic Designer Portfolio
